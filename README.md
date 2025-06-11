@@ -1,1 +1,1 @@
-ı m just a kid learning python psl dont hate me :)
+ı m just a kid learning python pls dont hate me :)
